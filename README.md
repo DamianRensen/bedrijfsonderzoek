@@ -14,7 +14,7 @@ t
 12 -
 13 -
 14 - Eigenaar: Elon Musk, Technische Directeur: JB Straubel, Financieel Directeur: Deepak Ahuja
-15 -
+15 - tesla wil het leven beter maken dan het al is en ze bieden de werknemers soepele werktijden en een boeiende werkomgeving
 16 - 
 17 - 
 
