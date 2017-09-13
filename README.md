@@ -19,3 +19,6 @@
 17 - 
 
 Bronnen Wikipedia, Tesla
+
+
+https://mediacollegeamsterdam-my.sharepoint.com/personal/20502_ma-web_nl/_layouts/15/guestaccess.aspx?docid=1c0951596002349f2aaa2b918d5ec1839&authkey=AZWw3BVhEC7v0-ePLBo8LV8
